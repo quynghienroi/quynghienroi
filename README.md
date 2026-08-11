@@ -25,7 +25,7 @@
 - **Bachelor of Information Technology (Innovation)** | Nguyen Tat Thanh University (NTTU - NIIE) | *Expected: 2029*
   - *Achievement:* TOP 1 Technology Division - NTTU Innovation Startup (DIA+ Project).
   - *Activity:* Core member of Inntech Club.
-- **Vocational Degree** | Vocational College | *Batch 21 (2021 - 2023)*
+- **Vocational Degree** | Vocational College of Information Technology | *Batch 21 (2021 - 2023)*
 
 ---
 
